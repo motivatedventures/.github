@@ -1,3 +1,3 @@
-# Motivated Ventures LLC
+# Motivated Ventures
 
 https://motivated.ventures
